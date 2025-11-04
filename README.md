@@ -7,7 +7,7 @@
 
 
 Assalamualaikum Everyone!  
-**𝐖𝐄𝐋𝐂𝐎𝐌 𝐓𝐎 𝐌𝐘 𝐂𝐀𝐓 𝐆𝐎𝐀𝐓 𝐁𝐎𝐓**
+**𝐖𝐄𝐋𝐂𝐎𝐌𝐄 𝐓𝐎 𝐌𝐘 𝐂𝐀𝐓 𝐆𝐎𝐀𝐓 𝐁𝐎𝐓**
 
 ![Box-shaped Imege](https://i.imgur.com/IhjLvb0.jpeg)
 
@@ -21,7 +21,7 @@ Assalamualaikum Everyone!
 -------
 
  <p align="center">
-  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=cyan&center=true&vCenter=true&multiline=false&lines=`𝐒𝐇𝐈𝐅𝐀𝐓+𝐆𝐎𝐀𝐓+𝐒𝐇𝐈𝐙𝐔𝐊𝐀+𝐁𝐎𝐓`" alt="">
+  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=cyan&center=true&vCenter=true&multiline=false&lines=`𝐇𝐄𝐋𝐀𝐋+𝐆𝐎𝐀𝐓+𝐂𝐚𝐭+𝐁𝐨𝐭`" alt="">
 
 <br>
 
@@ -116,9 +116,9 @@ ___
 **Location:** **`Jamalpur <> 𝐁𝐀𝐍𝐆𝐋𝐀𝐃𝐄𝐒𝐇`**  
 
 ### 📞 **CONTACT INFORMATION**  
-- **WhatsApp:** **[WHATSAPP ID](https://wa.me/+8801964467614)**  
-- **Facebook:** **[Facebook ID](https://facebook.com/100078859776449)**  
-- **Messenger:** **[Message Me](https://m.me/100078859776449)**
+- **WhatsApp:** **[WHATSAPP ID](https://wa.me/+880173489150)**  
+- **Facebook:** **[Facebook ID](https://facebook.com/@helal323)**  
+- **Messenger:** **[Message Me](https://m.me/61580156099497)**
 
 - 
 
@@ -153,11 +153,11 @@ Please do not disturb the admin unless you have a special need. Thank you!
 
 ## ✨ Special Thanks ✨
 
-- 😁 ** 𝐍𝐓𝐊 𝐁𝐎𝐓 𝐌𝐀𝐈𝐍 𝐎𝐖𝐍𝐄𝐑**  
-- 😜 **𝐌𝐃 𝐒𝐇𝐈𝐅𝐀𝐓 (𝐒𝐇𝐈𝐅𝐀𝐓 𝐆𝐎𝐀𝐓 𝐕3)**
+- 😁 ** 𝐍𝐓𝐊 𝐁𝐎𝐓 𝐌𝐀𝐈𝐍 𝐎𝐖𝐍𝐄� 𝐂𝐎𝐏𝐘𝐑𝐈𝐆𝐇𝐓 𝐁𝐘 𝐒𝐇𝐈𝐅𝐀𝐓 𝐀𝐋𝐋 𝐂𝐎𝐌𝐌𝐀𝐍𝐃 𝐅𝐈𝐗 𝐀𝐍𝐃 𝐌𝐀𝐊𝐄 𝐁𝐘 𝐇𝐄𝐋𝐀𝐋�**  
+- 😜 **𝐇𝐞𝐥𝐚𝐥 𝐂𝐚𝐭 𝐁𝐨𝐭**
 ---
 
-💖 **𝗧𝗵𝗮𝗻𝗸 𝗬𝗼𝘂 𝗙𝗼𝗿 𝗖𝗵𝗼𝗼𝘀𝗶𝗻𝗴 𝗦𝗵𝗶𝗳𝗮𝘁 𝗚𝗼𝗮𝘁 𝗕𝗼𝘁!**  
+💖 **𝗧𝗵𝗮𝗻𝗸 𝗬𝗼𝘂 𝗙𝗼𝗿 𝗖𝗵𝗼𝗼𝘀𝗶𝗻𝗴 𝐇𝐄𝐋𝐀𝐋 𝗚𝗼𝗮𝘁 𝗕𝗼𝘁!**  
 🗓️ *Release Date:* `03/10/2025 at 12:00`  
 ⭐ **𝐏𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧'𝐭 𝐟𝐨𝐫𝐠𝐞𝐭 𝐭𝐨 𝐠𝐢𝐯𝐞 𝐚 𝐬𝐭𝐚𝐫 𝐚𝐟𝐭𝐞𝐫 𝐟𝐨𝐫𝐤𝐢𝐧𝐠! 𝐈𝐭 𝐫𝐞𝐚𝐥𝐥𝐲 𝐡𝐞𝐥𝐩𝐬!**
 
@@ -175,4 +175,4 @@ Please do not disturb the admin unless you have a special need. Thank you!
   <a href="https://youtube.com/@SAUniqueBro"><img src="https://img.icons8.com/color/48/000000/youtube-play.png" alt="YouTube"></a>
 </p>
 
-**𝐈 𝐡𝐨𝐩𝐞 𝐲𝐨𝐮 𝐞𝐧𝐣𝐨𝐲 𝐦𝐲 𝐟𝐨𝐫𝐤! 𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐬𝐮𝐩𝐩𝐨𝐫𝐭𝐢𝐧𝐠 𝐭𝐡𝐞 𝐬𝐡𝐢𝐟𝐚𝐭 𝐠𝐨𝐚𝐭 𝐜𝐡𝐚𝐭 𝐛𝐨𝐭 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲!**
+**𝐈 𝐡𝐨𝐩𝐞 𝐲𝐨𝐮 𝐞𝐧𝐣𝐨𝐲 𝐦𝐲 𝐟𝐨𝐫𝐤! 𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐬𝐮𝐩𝐩𝐨𝐫𝐭𝐢𝐧𝐠 𝐭𝐡𝐞 𝐇𝐞𝐥𝐚𝐥 𝐠𝐨𝐚𝐭 𝐜𝐡𝐚𝐭 𝐛𝐨𝐭 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲!**
